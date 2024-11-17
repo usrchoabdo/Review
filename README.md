@@ -1,4 +1,4 @@
-mini projet: we call it REVIEW!!!
+mini projet: 
 Chokri Abderrahim 
 DAFIR Mohamed
 DAFIR Kamal
